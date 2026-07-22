@@ -1,4 +1,4 @@
-<img src="https://foolsparadise.neocities.org/graphics/2jokababy.png" align="left" width="170px"/>
+<img src="https://foolsparadise.neocities.org/graphics/2jokababy.png" align="left" width="100px"/>
 <img src="https://foolsparadise.neocities.org/ridla%20baby.png" align="right" width="170px"/>
 <p align="center">jackie, 21, he/him or she/her</p>
 <p align="center"><img src="https://foolsparadise.neocities.org/graphics/loungelizard.png"/><img src="https://foolsparadise.neocities.org/graphics/Illustration5.png"/><img src="https://foolsparadise.neocities.org/graphics/output_XJPbPB.gif"/><img src="https://foolsparadise.neocities.org/graphics/doctor%20stamp.png"/></p>
