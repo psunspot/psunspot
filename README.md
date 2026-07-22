@@ -1,4 +1,4 @@
-<img src="https://foolsparadise.neocities.org/graphics/joka%20baby.png" align="left" width="200px"/>
+<img src="https://foolsparadise.neocities.org/graphics/joka%20baby.png" align="left" width="250px"/>
 <img src="https://static.wikia.nocookie.net/batman/images/c/c8/Riddler_Posing_Fierce_Serving_Render.png/revision/latest?cb=20240615060156" align="right" width="200px"/>
 <p align="center">jackie, 21, he/him or she/her</p>
 <p align="center"><img src="https://foolsparadise.neocities.org/graphics/loungelizard.png"/><img src="https://foolsparadise.neocities.org/graphics/Illustration5.png"/><img src="https://foolsparadise.neocities.org/graphics/output_XJPbPB.gif"/><img src="https://foolsparadise.neocities.org/graphics/doctor%20stamp.png"/></p>
