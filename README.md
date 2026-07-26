@@ -4,8 +4,8 @@
 <p align="center"><img src="https://foolsparadise.neocities.org/graphics/loungelizard.png"/><img src="https://foolsparadise.neocities.org/graphics/Illustration5.png"/><img src="https://foolsparadise.neocities.org/graphics/output_XJPbPB.gif"/><img src="https://foolsparadise.neocities.org/graphics/doctor%20stamp.png"/><img src="https://64.media.tumblr.com/53d821ac5a58d2bbf30983fe3800e03c/363618625983c430-5c/s250x400/5b7c6a8fb47fb601039c896a6ce7a9072f4b08ee.pnj"/></p>
 <p align="center">im either in spawn or near the comic ponies. always with my bf. i typically only pop in here for an hour or two and im usually tabbed out doing something else. so if i disappear without answering a whisper, im sorry!! i really appreciate it and i would've gotten back to you.<br><br>
  hanging out around me is fine. whispering is encouraged and preferred since im tabbed out sometimes. im not super great at conversing but ill always make the attempt.</p><br><br>
-  <p align="center"><i>i block VERY freely and liberally, if im sitting on someone feel free to lmk.</i></p>
-<p align="center"><i>no minors please. proshippers, olt fans, or bftd fans hide me or ill kill you</i></p>
+  <p align="center"><i>i block VERY freely and liberally, if im sitting on someone feel free to lmk. hide me if you are a proshipper or like outlast or bftd</i></p>
+<p align="center"><i>PLEASE NOTE BEFORE YOU INTERACT that i do not like batfam, dgaf about jason todd, love shipping batjokes, and love the mad hatter (i DONT like it when he is a predator) thank you and dont bother me</i></p>
 <p align="center"><sub><a href="https://psunspot.straw.page">strawpage</a></sub></p>
 
 
