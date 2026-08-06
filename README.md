@@ -6,6 +6,6 @@
  hanging out around me is fine. whispering is encouraged and preferred since im tabbed out sometimes. im not super great at conversing but ill always make the attempt.</p><br><br>
   <p align="center"><i>i block VERY freely and liberally, if im sitting on someone feel free to lmk. hide me if you are a proshipper or like outlast or bftd</i></p>
 <p align="center"><i><b>PLEASE NOTE BEFORE YOU INTERACT</b>...that i struggle with possessiveness in regards to my interests and may get defensive if you like them too (but i will be kind and patient), do not like batfam, dgaf about jason todd, love batjokes, and love the mad hatter (i DONT like it when he is a predator) thank you and dont bother me</i></p>
-<p align="center"><sub><a href="https://psunspot.straw.page">strawpage</a></sub></p>
+<p align="center">for more info please check out my <a href="https://batterybrides.straw.page">strawpage!</a></p>
 
 
