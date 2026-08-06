@@ -8,4 +8,9 @@
 <p align="center"><i><b>PLEASE NOTE BEFORE YOU INTERACT</b>...that i struggle with possessiveness in regards to my interests and may get defensive if you like them too (but i will be kind and patient), do not like batfam, dgaf about jason todd, love batjokes, and love the mad hatter (i DONT like it when he is a predator) thank you and dont bother me</i></p>
 <p align="center"><sub><a href="https://psunspot.straw.page">strawpage</a></sub></p>
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=kejkax2j916yw73mi2j1qf9pv&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=kejkax2j916yw73mi2j1qf9pv&cover_image=true&theme=default&show_offline=true&background_color=3f4583&interchange=false&profanity=false&hide_remaster=true&bar_color=e8a417&bar_color_cover=true">
+  </a>
+</p>
 
