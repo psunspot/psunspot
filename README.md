@@ -7,7 +7,18 @@
   <p align="center"><i>i block VERY freely and liberally, if im sitting on someone feel free to lmk.</i></p>
 
 <details><summary><p align="center"><b><i>click this BYI</i></b></p></summary>
- <p align="center">hiiii</p>
+ <p align="center">
+ <b>things to note byi</b><br>
+  do not fucking interact and BLOCK ME if youre a proship/profic or """neutral""" on the matter. i dont want to debate with you about it either.(AND DO NOT BRING ANY RELATED TOPICS UP. IT WILL TRIGGER ME.)<br>
+  and further on that matter if you like bftd, outlast, and other bs that falls under that category gtfo. (jimmy mw defenders are included)<br>
+ i dont like hazbin/helluva but i wont block for it. just know i have strong contempt for it.
+  im fat and i hate fatphobes. if i see you say anything fatphobic i will block you. my standards for what is fatphobic is strict as fuck so just dont be a dick!<br>
+  i have ocd and this makes me do odd things. if i perceive danger in someone i might block them even if there is no danger there. you are free to ask me to unblock you as long as you dont fit my dni.<br>
+ i dont like the batfam and as a huge joker fan i feel nothing towards jason todd. (i will not care about your crowbar jokes)<br>
+  i SHIP BATJOKES. i LOVE batjokes. i dont give a fuck about het ships and do not like joker/harley.<br>
+ im a huge fan of the mad hatter, but i do not like it when he is written as a predator and do not read stories where he is (this also goes for joker!)<br>
+ 
+ </p>
 </details>
 
 <p align="center">for more info please check out my <a href="https://batterybrides.straw.page">strawpage!</a></p>
