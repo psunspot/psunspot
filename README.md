@@ -19,6 +19,7 @@
  <li>i dont like the batfam and <b>as a huge joker fan i feel nothing towards jason todd.</b> (i will not care about your crowbar jokes)</li>
   <li><b>i SHIP BATJOKES.</b> i LOVE batjokes. i really hate het ships and do not like joker/harley.</li>
  <li>im a huge fan of the mad hatter, <b>but i do not like it when he is written as a predator</b> and do not read stories where he is (this also goes for joker!)</li>
+   <li><b>i dont like standoffish meanies</b> or people who <b>only wanna talk about themselves.</b></li>
   <li>and lastly, i am a bit shy. i will still interact plenty but if i seem weird or quiet im just shy. i never mean to make anyone feel not included. if you are nice i love you and if you are friends with my friend i love you!</li>
   </ul>
  </p>
