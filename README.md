@@ -8,7 +8,7 @@
 
  <details>
 <summary>hi!</summary>
- hiiii
+ <p align="center">hiiii</p>
 </details>
 
 <p align="center">for more info please check out my <a href="https://batterybrides.straw.page">strawpage!</a></p>
