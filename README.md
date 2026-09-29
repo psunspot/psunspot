@@ -6,8 +6,7 @@
  hanging out around me is fine. whispering is encouraged and preferred since im tabbed out sometimes. im not super great at conversing but ill always make the attempt.</p><br>
   <p align="center"><i>i block VERY freely and liberally, if im sitting on someone feel free to lmk.</i></p>
 
- <center><details></center>
-<summary><p align="center"><b><i>click this BYI</i></b></p></summary>
+<details><summary><p align="center"><b><i>click this BYI</i></b></p></summary>
  <p align="center">hiiii</p>
 </details>
 
