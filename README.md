@@ -11,7 +11,7 @@
  <b>things to note byi</b><br>
   do not fucking interact and BLOCK ME if youre a proship/profic or """neutral""" on the matter. i dont want to debate with you about it either.(AND DO NOT BRING ANY RELATED TOPICS UP. IT WILL TRIGGER ME.)<br>
   and further on that matter if you like bftd, outlast, and other bs that falls under that category gtfo. (jimmy mw defenders are included)<br>
- i dont like hazbin/helluva but i wont block for it. just know i have strong contempt for it.
+ i dont like hazbin/helluva but i wont block for it. just know i have strong contempt for it.<br>
   im fat and i hate fatphobes. if i see you say anything fatphobic i will block you. my standards for what is fatphobic is strict as fuck so just dont be a dick!<br>
   i have ocd and this makes me do odd things. if i perceive danger in someone i might block them even if there is no danger there. you are free to ask me to unblock you as long as you dont fit my dni.<br>
  i dont like the batfam and as a huge joker fan i feel nothing towards jason todd. (i will not care about your crowbar jokes)<br>
