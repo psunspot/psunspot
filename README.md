@@ -5,8 +5,9 @@
 <p align="center">im either in spawn or near the comic ponies. always with my bf. i typically only pop in here for an hour or two and im usually tabbed out doing something else. so if i disappear without answering a whisper, im sorry!! i really appreciate it and i would've gotten back to you.<br><br>
  hanging out around me is fine. whispering is encouraged and preferred since im tabbed out sometimes. im not super great at conversing but ill always make the attempt.</p><br>
   <p align="center"><i>i block VERY freely and liberally, if im sitting on someone feel free to lmk.</i></p>
-<details>
- <p align="center"><summary>hi!</summary>
+<p align="center">
+ <details>
+<summary>hi!</summary>
  hiiii
 </details></p>
 <p align="center">for more info please check out my <a href="https://batterybrides.straw.page">strawpage!</a></p>
