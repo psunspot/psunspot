@@ -7,7 +7,7 @@
   <p align="center"><i>i block VERY freely and liberally, if im sitting on someone feel free to lmk.</i></p>
 
  <details>
-<summary><p align="center"><b><i><u>click this BYI</u></i></b></p></summary>
+<summary><p align="center"><b><i><ul>click this BYI</ul></i></b></p></summary>
  <p align="center">hiiii</p>
 </details>
 
