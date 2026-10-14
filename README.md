@@ -12,6 +12,7 @@
   <ul>
   <li><b>do not interact and BLOCK ME if youre a proship/profic</b> or """neutral""" on the matter. i dont want to debate with you about it either.(AND DO NOT BRING ANY RELATED TOPICS UP. IT WILL TRIGGER ME.)</li>
   <li>and further on that matter <b>if you like bftd, outlast, jimmy mw, rockzo mtl and other bs that falls under that category please DNI.</b></li>
+   <li>i will block all ponies surrounding ppl who im blocking if i percieve them as friends.</li>
  <li>i dont like <b>hazbin/helluva</b> but i wont block for it. just know i have strong contempt for it and <b>its better to avoid me</b></li>
   <li>im fat and <b>i hate fatphobes.</b> if i see you say anything fatphobic <b>i will block you.</b> my standards for what is fatphobic is very strict so just <b>dont be a dick!</b></li>
   <li>i have ocd and this makes me do odd things. if i perceive danger in someone i might block them even if there is no danger there. you are free to ask me to unblock you <b>as long as you dont fit this dni.</b></li>
