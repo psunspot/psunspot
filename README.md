@@ -1,4 +1,4 @@
-<img src="https://foolsparadise.neocities.org/graphics/bear.png" width="300px" align="left"/>
+<img src="https://foolsparadise.neocities.org/graphics/guy.png" width="300px" align="left"/>
 <p align="center"><b><i>jackie, 21, he/him or she/her</i></b></p>
 <p align="center"><img src="https://foolsparadise.neocities.org/graphics/loungelizard.png"/><img src="https://foolsparadise.neocities.org/graphics/Illustration5.png"/><img src="https://foolsparadise.neocities.org/graphics/output_XJPbPB.gif"/><img src="https://foolsparadise.neocities.org/graphics/doctor%20stamp.png"/><img src="https://64.media.tumblr.com/53d821ac5a58d2bbf30983fe3800e03c/363618625983c430-5c/s250x400/5b7c6a8fb47fb601039c896a6ce7a9072f4b08ee.pnj"/></p>
 <p align="center">im either in spawn or near the comic ponies. always with my <a href="https://github.com/piratesofpestulon">bf.</a> im almost always tabbed out unless im having a conversation. so if i disappear without answering a whisper, im sorry!! i really appreciate it and i would've gotten back to you.<br><br>
