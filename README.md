@@ -4,7 +4,7 @@
 <p align="center">im either in spawn or near the comic ponies. always with my <a href="https://github.com/piratesofpestulon">bf.</a> im almost always tabbed out unless im having a conversation. so if i disappear without answering a whisper, im sorry!! i really appreciate it and i would've gotten back to you.<br><br>
  if we share interests or have spoken, hanging out around me is fine and encouraged! whispering is also encouraged and preferred. feel free to start a chat! im not super great at conversing but ill always make the attempt.</p>
   <p align="center"><i>i block VERY freely and liberally, if im sitting on someone feel free to lmk.</i></p>
-  <a href="https://batterybrides.straw.page>read my strawpage for more!</a><br><br>
+  <a href="https://batterybrides.straw.page">read my strawpage for more!</a><br><br>
 
 
 
